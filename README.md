@@ -1,0 +1,2 @@
+# takana
+No comprendido 
